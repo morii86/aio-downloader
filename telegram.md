@@ -7,6 +7,565 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/02/20 01:23
+---
+
+## VahidOOnLine — post 239169
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239169_1778363635.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ستاد فرماندهی مرکزی ایالات متحده، سنتکام، روز شنبه با انتشار تصاویری از فعالیت متخصصان فنی خود، بر تداوم آمادگی رزمی نیروهای آمریکایی در خاورمیانه تاکید کرد. سنتکام در حساب رسمی خود در اکس نوشت: «ملوانان آمریکایی مستقر در ناو هواپیمابر «یواس‌اس آبراهام لینکلن» که در حال حاضر در منطقه خاورمیانه فعالیت می‌کند، به صورت شبانه‌روزی عملیات نگهداری و تعمیرات را انجام می‌دهند تا جنگنده‌های مستقر در دریا را برای اجرای ماموریت در حالت آماده‌باش کامل نگه دارند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239168
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239168_1778363636.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی طائب، فرمانده قرارگاه عمار روز شنبه در جمع حامیان حکومت در اراک گفت: «تا زمانی که تنگه هرمز در کنترل ما باشد و اجازه عبور آزادانه به دشمن داده نشود، نشانه‌ای از سازش وجود ندارد. در گذشته برخی تصور می‌کردند اگر دشمن حمله‌ای انجام دهد همه چیز از بین خواهد رفت، اما امروز نگاه جامعه تغییر کرده است». او گفت: «دشمنان به این نتیجه رسیدند که برای مقابله با این جریان باید مرکز اسلام انقلابی را از بین ببرند و به همین دلیل در دوره‌های مختلف روسای جمهور آمریکا هر کدام بخشی از این برنامه را پیش بردند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239167
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239167_1778363637.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس جمهوری ایالات متحده، روز شنبه با انتشار یک طرح گرافیکی مقایسه‌ای در «تروث سوشال»، بار دیگر سیاست‌های خارجی باراک اوباما و جو بایدن را در قبال جمهوری اسلامی به چالش کشید. در این تصویر که با عنوان «۱۵۹ کشتی ایرانی» منتشر شده، در سمت چپ (دوران اوباما/بایدن) ناوگانی فعال از شناورهای جنگی جمهوری اسلامی روی سطح آب دیده می‌شود که نمادی از تداوم فعالیت‌های دریایی تهران است. در مقابل و در سمت راست تصویر (دوران ترامپ)، همان ناوگان به صورت کشتی‌های غرق‌شده و منهدم‌شده در کف دریا به تصویر کشیده شده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239166
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239166_1778363638.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش آکسیوس، مارکو روبیو، وزیر امور خارجه آمریکا، و استیو ویتکاف، فرستاده ویژه کاخ سفید، روز شنبه در میامی با محمد بن عبدالرحمن آل ثانی، نخست‌وزیر قطر، دیدار و گفتگو کردند. این نشست که به عنوان بخشی از تلاش‌های دیپلماتیک برای پایان دادن به جنگ ایران ارزیابی می‌شود، بر روی یک یادداشت تفاهم تک‌صفحه‌ای متمرکز بود که قرار است چارچوبی برای مذاکرات جزئی‌تر و توقف درگیری‌ها ایجاد کند. براساس این گزارش، واشنگتن در حال حاضر در انتظار دریافت آخرین پاسخ تهران به این پیش‌نویس است و نخست‌وزیر قطر نیز برای پیشبرد این روند، برنامه بازگشت خود به دوحه را تغییر داده تا به صورت حضوری در این رایزنی‌های سرنوشت‌ساز شرکت کند. آکسیوس نوشت، اگرچه پاکستان از ابتدای جنگ به عنوان میانجی رسمی میان تهران و واشنگتن شناخته می‌شد، اما دولت ترامپ اکنون قطر را به عنوان بازیگری بسیار موثر در کانال‌های غیررسمی و پشت‌پرده می‌بیند. منابع آگاه تایید کرده‌اند که این تلاش‌ها به صورت هماهنگ میان قطر، پاکستان، مصر، ترکیه و عربستان سعودی در جریان است
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239165
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_239165_1778363639.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا، در حساب خود در شبکه تروث سوشال تصویری منتشر کرد که در آن عملکرد دولت‌های اوباما و بایدن و ترامپ به‌صورت کنایه‌آمیز مقایسه شده است.
+
+در این تصویر، در بخش مربوط به «اوباما و بایدن»، شماری از کشتی‌ها روی سطح آب دیده می‌شوند، اما در بخش مربوط به «ترامپ»، کشتی‌ها در زیر آب نشان داده شده‌اند.
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 239164
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_239164_1778363640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس خبر داد که مارکو روبیو، وزیر خارجه آمریکا و استیو ویتکوف، فرستاده ویژه ترامپ، شنبه در میامی با محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر درباره مذاکرات با جمهوری اسلامی گفت‌وگو کردند.
+
+پیش‌تر اکسیوس گزارش داده بود که قطر در هفته‌های اخیر تلاش‌های میانجی‌گری پشت‌پرده میان آمریکا و جمهوری اسلامی را از سر گرفته و به یکی از دست‌کم سه کانال غیررسمی ارتباطی میان دو کشور تبدیل شده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## pm_afshaa — post 90444
+
+<div align="center">
+  <img src="telegram/content/pm_afshaa_90444_1778363640.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پست جدید ترامپ تو تروث سوشال :
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90443
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90443_1778363641.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه 15 اسرائیل: تو واشنگتن هنوز منتظر جواب ایران هستن.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90442
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبری که از قول مارکو روبیو پخش شده که گفته "ایران پیشنهاد رو رد کرد" فیکه و اصلا همچین چیزی نگفته.
+</div>
+
+## pm_afshaa — post 90441
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90441_1778363642.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴آکسیوس: آمریکا هنوز در انتظار پاسخ ایران تا اوایل بعدازظهر یک‌شنبه است.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 90440
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_90440_1778363643.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴باراک راوید خبرنگار ارشد آکسیوس:
+مارکو روبیو و استیو ویتکاف امروز در میامی با نخست وزیر قطر دیدار کردن؛ نخست وزیر قطر ممکنه در مذاکرات بین آمریکا و ایران میانجی‌گری کنه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## VahidOnline — post 75369
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تصاویر ساختگی دیگری که ترامپ در صفحه‌اش منتشر کرده: realDonaldTrump
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87316
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87316_1778363643.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست جدید ترامپ
+
+[جنگ نزدیک است].
+https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 336361
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+هم‌زمان با فراخوان شاهزاده رضا پهلوی برای حمایت از مردم ایران در پی خاموشی سراسری اینترنت، بازداشت‌های گسترده و اعدام‌های مداوم، گروهی از ایرانیان روز شنبه مقابل کاخ سفید، دفتر اتحادیه اروپا و دفتر حافظ منافع جمهوری اسلامی تجمع اعتراضی برگزار کردند.
+
+در این تجمع با برزو ارجمند، هنرمند ایرانی، گفت‌وگو شد؛ او از جمله افرادی است که پیش‌تر دستور توقیف اموالش در ایران صادر شده بود.
+@iranintltv
+</div>
+
+## IranIntlTV — post 336360
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/336360" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: ترس مجتبی خامنه‌ای از شناسایی توسط اجنه موساد!
+@iranintlTV
+</div>
+
+## IranIntlTV — post 336359
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_336359_1778363645.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+وزارت تجارت ترکیه اعلام کرد صادرات این کشور در ماه گذشته میلادی با بیش از ۲۲ درصد رشد به ۲۵ میلیارد و ۵۰۰ میلیون دلار رسیده است.
+
+بریتانیا بزرگ‌ترین مقصد صادرات ترکیه اعلام شده و پس از آن آمریکا، اسلواکی، چین و آلمان قرار دارند.
+
+گزارش نرگس هورخش، خبرنگار ایران‌اینترنشنال
+@iranintltv
+</div>
+
+## IranIntlTV — post 336358
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_336358_1778363646.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اکسیوس خبر داد که مارکو روبیو، وزیر خارجه آمریکا و استیو ویتکوف، فرستاده ویژه ترامپ، شنبه در میامی با محمد بن عبدالرحمن آل ثانی، نخست‌وزیر و وزیر خارجه قطر درباره مذاکرات با جمهوری اسلامی گفت‌وگو کردند.
+
+پیش‌تر اکسیوس گزارش داده بود که قطر در هفته‌های اخیر تلاش‌های میانجی‌گری پشت‌پرده میان آمریکا و جمهوری اسلامی را از سر گرفته و به یکی از دست‌کم سه کانال غیررسمی ارتباطی میان دو کشور تبدیل شده است.
+https://iranintl.com/202605099539
+</div>
+
+## Shin_Persian — post 5913
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 09 May 2026 21:17:43 UTC
+
+Jet activity over Baghdad
+#Iraq 🇮🇶
+
+فارسی
+
+فعالیت جت‌ها بر فراز بغداد
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105218
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105218_1778363647.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا، در حساب خود در شبکه تروث سوشال تصویری منتشر کرد که در آن عملکرد دولت‌های اوباما و بایدن و ترامپ به‌صورت کنایه‌آمیز مقایسه شده است.
+
+در این تصویر، در بخش مربوط به «اوباما و بایدن»، شماری از کشتی‌ها روی سطح آب دیده می‌شوند، اما در بخش مربوط به «ترامپ»، کشتی‌ها در زیر آب نشان داده شده‌اند.
+</div>
+
+## FarsiVOA — post 217306
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️سنتکام تصاویری از ملوانان آمریکایی مستقر در ناو هواپیمابر آبراهام لینکلن را که منتشر کرد که کار تعمیر و نگهداری هواگردهای مستقر در دریا را «به‌صورت شبانه‌روزی» انجام می‌دهند و آن‌ها را «در آمادگی کامل عملیاتی» نگه می‌دارند. این ناو در خاورمیانه فعالیت می‌کند.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 217305
+
+<div align="center">
+  <img src="telegram/content/FarsiVOA_217305_1778363648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ناامن کردن تنگه هرمز و حمله به کشتی‌های تجاری از سوی جمهوری اسلامی، هزاران ملوان را هفته‌ها است که در آب‌های اطراف آن سرگردان کرده و مواد خوراکی آن‌ها نیز رو به اتمام است. وال‌استریت ژورنال در گزارشی تعداد ملوانان سرگردان را حدود ۲۰هزار نفر گزارش کرد.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 13795
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_13795_1778363648.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ یکی هوش مصنوعی رو از ترامپ بگیره 🤦🏻‍♂️
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13794
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_13794_1778363649.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⭕️ جمهوری اسلامی گفته در صورت اقدام آمریکا برای اذیت یا حمله، کابل‌های اینترنت جهانی در خلیج فارس و تنگه هرمز قطع و اینترنت جهان مختل می‌شود.
+
+پ.ن: خوبه دنیا بفهمه اینا چه حرو***یی هستن.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 13793
+
+<div align="center">
+  <a href="https://t.me/persian_trend_official/13793" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فایل صوتی لایو اول
+نسخه کم حجم - 8.24 مگابایت
+
+اتاق جنگ شنبه 19 اردیبهشت | ترامپ: اگر توافق نشود پروژه آزادی پلاس اجرا می شود.
+
+📝 Nick
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## IranianMinds — post 19862
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19862_1778363650.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 کیم‌ جونگ اون هم وقتی دید خامنه ای و کشتن و مادورو رو دزدیدن احساس خطر کرد و سیاست های هسته ای خودشو تغییر داد
+
+از این پس اگه رهبر کره شمالی هدف عوامل یکی از کشور های دیگر قرار بگیره و اثبات بشه , کره شمالی استفاده از سلاح هسته ای علیه اون کشور خارجی رو مجاز میکنه.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19861
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فقط کافیه مرغ از خیابون رد کنی و‌پولت چند برابر کنی
+💵👌
+</div>
+
+## IranianMinds — post 19860
+
+<div align="center">
+  <a href="telegram/content/IranianMinds_19860_1778363650.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵
+ae19
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+OS-QBvyDO4M2ZGY0
+https://t.me/+OS-QBvyDO4M2ZGY0
+</div>
+
+## IranianMinds — post 19859
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19859_1778363653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 پست ترامپ:
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19858
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_19858_1778363653.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+شما فک‌ کنید یه بچه ۱۶ ساله که الان تنها دغدغش باید درس و مشقش باشه، تو‌ این کشور جونش در خطره و ممکنه توسط حکومت اعدام شه :)
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19857
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴شبکه ۱۵ اسرائیل:
+
+تو واشنگتن هنوز منتظر جواب ایران هستن.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 19856
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 جمهوری اسلامی : آمریکا بخواد بیشتر اذیتمون بکنه یا کاری بکنه میزنیم کل کابل های اینترنت جهانی در خلیح فارس و زیر تنگه هرمز رو قطع میکنیم و اینترنت کل دنیارو مختل میکنیم @IranianMinds
+</div>
+
+## BBCPersian — post 280597
+
+<div align="center">
+  <img src="telegram/content/BBCPersian_280597_1778363654.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌🔻هواپیمای مسافربری شرکت فرانتیر در آمریکا پیش از پرواز از فرودگاه دنور به مقصد لس‌آنجلس، با فردی که از حصار اطراف باند فرودگاه بین‌المللی این شهر به داخل پریده بود تصادف کرد و باعث کشته‌شدن او شد.
+
+برج مراقبت این فرودگاه صدای خلبان پرواز ۴۳۴۵ را منتشر کرد که لحظاتی پس از تصادف گفت: «ما همین الان به کسی برخورد کردیم. موتور آتش گرفته است.»
+
+به گزارش مقام‌های فرودگاه، آتش‌نشانی دنور به سرعت آتش را خاموش کرد. پنج مسافر این هواپیما مجروح و به بیمارستان‌های اطراف منتقل شدند. همچنین ۱۲ سرنشین دچار جراحات جزئی شدند.
+
+این حادثه جمعه ۸ مه/ ۱۸ اردیبهشت ساعت ۱۱ شب به وقت محلی رخ داد.
+
+شرکت هواپیمایی فرانتیر اعلام کرد که «فرد ناشناس» دو دقیقه قبل از برخورد، از روی حصار اطراف فرودگاه به داخل پریده بود.
+
+هواپیماهای مسافربری معمولاً با سرعتی بین ۲۴۰ تا ۲۹۰ کیلومتر در ساعت از زمین بلند می‌شوند.
+
+فرودگاه دنور اعلام کرده که گمان نمی‌کند این فرد از کارکنان فرودگاه باشد.
+📷EPA
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 389186
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_389186_1778363655.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مزد خر چروندن، گوز خره.
+اینم تقدیم به دنیا برای مماشات با دیوانگان جمهوری اسلامی.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389185
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آخرین‌بار قبل ج.ا، صدام حسین شیر نفتو تو دریا باز کرد!
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 389184
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏عصری رفتم لبنیاتی پرسیدم این ماسته شیرینه؟ گفت نه ترشه تقریبا. همه باورهام فرو ریخت، هرچی از بچگی شنیده بودم دود شد رفت هوا.
+اولین ماست‌بند تاریخ بود که گفت ماست من ترشه.
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## manototv — post 105218
+
+<div align="center">
+  <a href="telegram/content/manototv_105218_1778363656.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رئیس‌جمهور آمریکا، در حساب خود در شبکه تروث سوشال تصویری منتشر کرد که در آن عملکرد دولت‌های اوباما و بایدن و ترامپ به‌صورت کنایه‌آمیز مقایسه شده است.
+
+در این تصویر، در بخش مربوط به «اوباما و بایدن»، شماری از کشتی‌ها روی سطح آب دیده می‌شوند، اما در بخش مربوط به «ترامپ»، کشتی‌ها در زیر آب نشان داده شده‌اند.
+</div>
+
+## alonews — post 118969
+
+<div align="center">
+  <a href="telegram/content/alonews_118969_1778363656.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آسوشیتدپرس: به‌گفتهٔ کارشناسان کشتیرانی، نرخ بیمهٔ کشتی‌ها در تنگهٔ هرمز از 1 درصد ارزش کالاهای کشتی به 10 درصد جهش یافته است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118968
+
+<div align="center">
+  <a href="telegram/content/alonews_118968_1778363657.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک‌‌ ماه پیش در‌ چنین روزی آتش بس دو هفته ای بین ایران و آمریکا برقرار شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118967
+
+<div align="center">
+  <a href="telegram/content/alonews_118967_1778363657.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: آمریکا هنوز در انتظار پاسخ ایران تا اوایل بعدازظهر یک‌شنبه است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118966
+
+<div align="center">
+  <a href="telegram/content/alonews_118966_1778363657.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈توییت جدید ترامپ
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118965
+
+<div align="center">
+  <a href="telegram/content/alonews_118965_1778363657.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴امروز سالروز اعدام فرخ رو پارسا وزیری با کارنامه طلایی تحولِ آموزش و پرورش در قرن بیستم ایرانِ شاهنشاهی که توسط جمهوری‌ خواهانِ وحشی سرکوبگر «مجاهد،توده‌ای،اسلامی…» به قتل رسید.!
+
+
+🔴جرم: حذف زبان عربی از آموزش و کتاب‌های درسی، چادر و حجاب را ممنوع کرد.
+
+
+✅@AloNews
+</div>
+
+## alonews — post 118964
+
+<div align="center">
+  <a href="telegram/content/alonews_118964_1778363660.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈شبکه 15 اسرائیل : تو واشنگتن هنوز منتظر جواب ایران هستن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118963
+
+<div align="center">
+  <a href="telegram/content/alonews_118963_1778363660.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مولانا عبدالحمید: تنگه هرمز و دریا متعلق به کشورهای حاشیه خلیج فارس هست و نباید گروگانگیری کرد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 118962
+
+<div align="center">
+  <a href="telegram/content/alonews_118962_1778363662.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈آکسیوس: روبیو و ویتکاف با رئیس قطر درباره تلاش‌ها برای پایان دادن به جنگ با ایران صبحت کردن
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/02/20 00:23
 ---
 
